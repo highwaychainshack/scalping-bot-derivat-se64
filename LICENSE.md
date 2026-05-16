@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with rare scalping bot for derivatives Tool | auto-leverage + scalping, the #1 scalping bot for derivatives. Includes auto-leverage and scalping for a
 
 
 
